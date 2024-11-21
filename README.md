@@ -3,8 +3,8 @@
 -  Me gusta mucho la literatura, mi genero favorioto es el terror y suspenso
 -  Me gustan mucho las pleiculas de marvel y mi superheroe favorito es spiderman
 -  Mi comida favorita son las hambuerguezas
--  me gusta mucho pasar tiempo con mi familia
--  me gusta escuchar musica en mis tiempos libres 
+-  Amo pasar tiempo con mi familia 
+-  Me gusta escuchar musica en mis tiempos libres 
 - 👀 
 - 🌱 
 - 💞️ 
